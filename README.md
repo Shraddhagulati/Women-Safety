@@ -1,0 +1,2 @@
+# Women-Safety
+One primary problem faced by several traveller is the blatant lack of safety when travelling, particularly at night. Quiet, dark paths void of little/any human life always spells trouble. My inspiration came from the rising issue of Women Safety and in general the protection of human life in our country. Through our project we aim to make travelling by foot or otherwise post nightfall a safer experience for all while also striving to decrease the rates of crime.
